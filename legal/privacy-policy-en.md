@@ -75,8 +75,8 @@ We may update this privacy policy from time to time. Updated policies will be an
 
 If you have any questions about this privacy policy, please contact us through:
 
-- 📧 Email: support@renhe-m.com
-- 🌐 Website: https://renhe-m.com
+- 📧 Email: 7633927@qq.com
+- 🌐 Website: https://tuxf.net
 
 ---
 
